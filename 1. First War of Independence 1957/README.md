@@ -8,7 +8,6 @@ We have structured the entire syllabus into a historical novel: **"The Great Awa
 Instead of reading dry bullet points, students follow the journey of **Arjun Singh** (a young sepoy) and **Bishan Upadhyay** (a veteran mentor) as they navigate the political, socio-religious, and military tensions of the era.
 
 ### 🏠 Study Resources
-- **[The Complete Novel](./1857_The_Great_Awakening_Novel.md):** A single-file version of the full story for continuous reading.
 - **[Individual Chapters](./Chapters/):** The story broken down into 8 focused study units with board-style practice questions.
 - **[Source Data](./First_War_of_Independence_ICSE_FULL.txt):** The raw textbook content used for verification and question mapping.
 
