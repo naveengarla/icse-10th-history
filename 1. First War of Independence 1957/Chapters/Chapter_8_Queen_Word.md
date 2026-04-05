@@ -1,37 +1,8 @@
 # Chapter 8: The Queen’s Word
 
-**Allahabad and Beyond**
+**Allahabad, India**
 **November 1, 1858**
 
-The thunder of the cannons had finally died down. The smoke that had covered India for eighteen months had begun to clear, revealing a landscape that was changed forever.
-
-Arjun and Bishan stood on the outskirts of Allahabad, watching a grand procession. No longer were the flags of the East India Company flying. Instead, a new banner was being raised.
-
-A massive gathering had assembled to hear a Proclamation. Lord Canning, the man who had been the Governor-General during the storm, stood on a podium. But his title was different now. He was the first **Viceroy**.
-
-"Listen," Bishan said, his eyes narrowing as the words of **Queen Victoria’s Proclamation** were read aloud.
-
-*“We hereby take upon ourselves the Government of the Territories in India... The East India Company is no more.”*
-
-Arjun looked at his old, tattered red coat. "The Company is gone? After two hundred years? So we won, kaka?"
-
-"Did we?" Bishan asked him in a sharp Socratic whisper. "If one master leaves and his sister takes the keys, is the house free, or just under a new lock?"
-
-*“We desire no extension of our present territorial possessions,”* the voice of the reader continued. *“The Doctrine of Lapse is hereby abolished. The rights and dignity of the Princes shall be respected.”*
-
-"They have stopped the swallowing of states," Arjun noted. "Rani Laxmi Bai would have been happy to hear that."
-
-"A little too late for her," Bishan said grimly. "But look at what else they say. They promise religious freedom. They say we can have jobs in the government regardless of our creed. They are trying to soothe the fire."
-
-But as they walked away from the crowd, Bishan stopped by a new army recruitment post. He pointed to the numbers.
-
-"Look at the new rules for the army, Arjun. They are reducing the number of Indian sepoys. Instead of five to one, it will now be two to one. And the cannons? All big guns will now be in the hands of the English soldiers only. They have learned that we are the pillars, and they are making sure the pillars can never move again."
-
-Arjun looked at a group of sepoys. They were being recruited from different regions—Sikhs, Gurkhas, Pathans—and kept in separate regiments.
-
-"They are dividing us by our names and our regions, aren't they?" Arjun asked.
-
-"**Divide and Rule**," Bishan said, his voice heavy with a new kind of sadness. "They saw us fight together in Delhi—Hindu and Muslim side by side. They saw that unity can break an empire. So, they will spend the next hundred years making sure we never trust each other again. They will tell the Hindu that the Muslim wants the Mughal back, and they will tell the Muslim that the Hindu wants to rule him. They will plant a garden of suspicion."
 
 Arjun looked at the horizon. The sun was setting, casting long, dark shadows over the plains. 
 
